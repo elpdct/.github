@@ -3,7 +3,9 @@
 ## Contact
 
 277 West Main Street, Niantic, Connecticut 06357
+
 Phone: (860) 739-5900
+
 Fax: (860) 739-0337
 
 ## Info
